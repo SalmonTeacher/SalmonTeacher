@@ -1,2 +1,2 @@
 Nice to meet you LTNS everyone -
-Reach me : @doynl2, #이도윤4656, tastefox@gmail
+Reach me : discord #이도윤4656
